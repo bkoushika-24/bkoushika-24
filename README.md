@@ -11,7 +11,6 @@
 - Ping me on :
    LinkedIn: koushika b
    
-   Twitter : @Koushika06
   
 
 <!---
