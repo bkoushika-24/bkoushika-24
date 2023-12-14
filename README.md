@@ -1,7 +1,7 @@
 -  Hi there 👋 
      I’m Koushika
 
-- 🌱 I’m currently pursuing my B.Tech Degree 
+- 🌱 Completed my B.Tech Degree 
      (Electronics and Communication Engineering) 
      at MLR Institute of Technology,Hyderabad 
 - 😄 Pronouns:She/Her
