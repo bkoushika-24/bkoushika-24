@@ -3,7 +3,7 @@
 
 - 🌱 Completed my B.Tech Degree 
      (Electronics and Communication Engineering) 
-     at MLR Institute of Technology,Hyderabad 
+     at MLR Institute of Technology,Hyderabad (2019-2023)
 - 😄 Pronouns:She/Her
 - 📫 How to reach me 
 
