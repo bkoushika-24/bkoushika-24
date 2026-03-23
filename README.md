@@ -3,7 +3,7 @@
    
 -    Currently Pursuing my Masters in Computer Science at UDC, Washington DC (Jan 2025-2026)
 
--    Associate Engineer Technology (Virtusa) (April 2023-Jan 2025)  
+-    Associate Engineer Technology (Virtusa) (April 2022-Jan 2025)  
 - 🌱 Completed my B.Tech Degree 
      (Electronics and Communication Engineering) 
      at MLR Institute of Technology,Hyderabad (2019-2023)
