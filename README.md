@@ -1,7 +1,7 @@
 -  Hi there 👋 
      I’m Koushika
    
--    Currently Pursuing my Masters in Computer Science at UDC, Washington DC (Jan 2025-2026)
+-    Currently Pursuing my Masters in Computer Science at UDC, Washington DC (Jan 2025-May 2026)
 
 -    Associate Engineer Technology (Virtusa) (April 2022-Jan 2025)  
 - 🌱 Completed my B.Tech Degree 
